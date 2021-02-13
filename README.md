@@ -1,5 +1,5 @@
 ```
-Discord ID: 479784659333677066
+Discord ID: 479784659333677066 (use https://discord.id/ to retrieve my discord username & tag)
 Telegram: @misonothx
 
 yea i code in 2002 VB.NET so what
