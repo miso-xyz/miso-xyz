@@ -4,7 +4,7 @@ Telegram: @misonothx
 
 yea i code in 2002 VB.NET so what
 
-:gladge:
+:gladge: sinister.ly <3
 ```
 <!--
 **miso-xyz/miso-xyz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
