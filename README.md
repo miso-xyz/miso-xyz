@@ -9,6 +9,9 @@ that wise man likely also received sloppy toppy from miyako.
 
 :moristC:
 ```
+<p align="center">
+  <img src="https://i.ibb.co/M1sQ9rY/sonicthehedgehog-20210512-0001.jpg" align="center" width="1000" height="200">
+</p>
 <!--
 **miso-xyz/miso-xyz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
