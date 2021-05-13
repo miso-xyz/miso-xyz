@@ -3,9 +3,10 @@ Discord ID: 479784659333677066 (use https://discord.id/ to retrieve my discord u
 Telegram: @misonothx
 
 yea i code in 2002 VB.NET so what
-- average deez enjoyer
 
-:gladge:
+like a "wise" man once said, "just threw my dip out, and i know you're from the same town as me brother im from Houton Texas :cowboy:"
+
+:moristC:
 ```
 <!--
 **miso-xyz/miso-xyz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
