@@ -5,6 +5,7 @@ Telegram: @misonothx
 yea i code in 2002 VB.NET so what
 
 like a "wise" man once said, "just threw my dip out, and i know you're from the same town as me brother im from Houton Texas :cowboy:"
+that wise man likely also received sloppy toppy from miyako.
 
 :moristC:
 ```
