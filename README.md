@@ -6,7 +6,7 @@ yea i code in 2002 VB.NET so what
 
 :moristC:
 </pre>
-<img src="http://www.mariowiki.com/images/thumb/5/5d/SpikeNSMBW.png/113px-SpikeNSMBW.png" width="1000" height="200">
+<img src="https://i.ibb.co/cNKkpNF/image.png">
 <!--
 
 
@@ -16,7 +16,7 @@ me at your door:</br>
 </p>
 
 <img src="https://i.ibb.co/txJHPmn/1609044691286.png" width="300" height="300"> // the voices
-
+http://www.mariowiki.com/images/thumb/5/5d/SpikeNSMBW.png/113px-SpikeNSMBW.png
 
 **miso-xyz/miso-xyz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
