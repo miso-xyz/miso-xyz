@@ -4,7 +4,7 @@ Telegram: <a href="https://t.me/misonothx">@misonothx</a>
 
 yea i code in 2002 VB.NET so what
 
-:moristC:
+:moristC: :connor6Froggy:
 </pre>
 <img src="https://i.ibb.co/cNKkpNF/image.png">
 <!--
