@@ -2,7 +2,7 @@
 Discord ID: 479784659333677066 (use <a href="https://discord.id/">discord.id</a> to retrieve my discord username & tag)
 Telegram: <a href="https://t.me/misonothx">@misonothx</a>
 
-yea i code in 2002 VB.NET so what
+yea i code in 2002 VB.NET & X++ so what
 </pre>
 <img src="https://static-cdn.jtvnw.net/emoticons/v1/305624241/2.0"><img width="500" height="56" src="https://static-cdn.jtvnw.net/emoticons/v1/301084299/2.0">
 <img src="https://i.ibb.co/cNKkpNF/image.png">
