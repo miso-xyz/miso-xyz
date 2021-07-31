@@ -4,7 +4,7 @@ Telegram: <a href="https://t.me/misonothx">@misonothx</a>
 
 Description: shitty RE-er, don't expect much
 
-Known Languages: C#, VB.NET, Vyper X++
+Known Languages: C#, VB.NET, Vyper X++, barely knows any C/C++
 (yea i code in 2002 VB.NET & mf X++ so what)
 </pre>
 <img src="https://static-cdn.jtvnw.net/emoticons/v1/305624241/2.0"><img width="500" height="56" align="right" src="https://static-cdn.jtvnw.net/emoticons/v1/301084299/2.0">
