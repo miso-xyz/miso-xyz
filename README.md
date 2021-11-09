@@ -1,5 +1,4 @@
 <pre>
-Discord ID: 479784659333677066 (use <a href="https://discord.id/">discord.id</a> to retrieve my discord username & tag)
 Telegram: <a href="https://t.me/misonothx">@misonothx</a>
 
 Description: shitty RE-er, don't expect much
