@@ -1,4 +1,6 @@
 <pre>
+Currently busy making music and focussing on Chara-related stuff, will comeback with stuff soon
+
 Telegram: <a href="https://t.me/misonothx">@misonothx</a>
 
 Description: shitty RE-er, don't expect much
