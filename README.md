@@ -1,5 +1,5 @@
 <pre>
-Currently busy making music and focussing on Chara-related stuff, will comeback with stuff soon
+(currently busy making music and focussing on Chara-related stuff, will comeback with stuff soon)
 
 Telegram: <a href="https://t.me/misonothx">@misonothx</a>
 
