@@ -1,4 +1,7 @@
-<pre>
+innactive miso be like
+
+<img width="500" height="56" align="right" src="https://static-cdn.jtvnw.net/emoticons/v1/301084299/2.0">
+<!--<pre>
 (currently busy making music and focussing on Chara-related stuff, will comeback with stuff soon)
 
 Telegram: <a href="https://t.me/misonothx">@misonothx</a>
@@ -9,8 +12,6 @@ Known Languages: C#, VB.NET, Vyper X++, barely knows any C/C++
 (yea i code in 2002 VB.NET & mf X++ so what)
 </pre>
 <img src="https://static-cdn.jtvnw.net/emoticons/v1/305624241/2.0"><img width="500" height="56" align="right" src="https://static-cdn.jtvnw.net/emoticons/v1/301084299/2.0">
-<!--
-<img src="https://i.ibb.co/cNKkpNF/image.png">
 
 me at your door:</br>
 <p align="center">
