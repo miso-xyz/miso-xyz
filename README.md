@@ -1,6 +1,6 @@
-who dis
+holy shitz chillz!!!!!
 
-<img width="500" height="56" align="right" src="https://static-cdn.jtvnw.net/emoticons/v1/301084299/2.0">
+<img width="500" height="56" align="right" src="https://cdn.7tv.app/emote/6266ded14f54759b7184de2d/4x">
 <!--<pre>
 (currently busy making music and focussing on Chara-related stuff, will comeback with stuff soon)
 
