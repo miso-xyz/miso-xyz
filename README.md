@@ -1,10 +1,8 @@
-<img width="500" height="56" src="https://cdn.7tv.app/emote/6266ded14f54759b7184de2d/4x">
+<p align="center"><img width="384" height="128" src="https://cdn.7tv.app/emote/6266ded14f54759b7184de2d/4x"><img width="384" height="128" src="https://cdn.7tv.app/emote/6266ded14f54759b7184de2d/4x"></p>
 <!--<pre>
 (currently busy making music and focussing on Chara-related stuff, will comeback with stuff soon)
 
 Telegram: <a href="https://t.me/misonothx">@misonothx</a>
-
-Description: shitty RE-er, don't expect much
 
 Known Languages: C#, VB.NET, Vyper X++, barely knows any C/C++
 (yea i code in 2002 VB.NET & mf X++ so what)
