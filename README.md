@@ -1,4 +1,4 @@
-<p align="center"><img width="384" height="128" src="https://cdn.7tv.app/emote/6266ded14f54759b7184de2d/4x"><img width="384" height="128" src="https://cdn.7tv.app/emote/6266ded14f54759b7184de2d/4x"></p>
+<p align="center"><img width="384" height="128" src="https://cdn.7tv.app/emote/6266ded14f54759b7184de2d/4x.webp"><img width="384" height="128" src="https://cdn.7tv.app/emote/6266ded14f54759b7184de2d/4x.webp"></p>
 <!--<pre>
 (currently busy making music and focussing on Chara-related stuff, will comeback with stuff soon)
 
